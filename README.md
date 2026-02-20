@@ -1,11 +1,6 @@
-# About
+# Information
+
 ..?
-
-oh. Its just you.
-
-Yes, it is. Now now, don't keep us waiting!
-
-..Fine.
 
 > Do not interact.
 
