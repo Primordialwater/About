@@ -39,6 +39,10 @@ People treat their assumptions as fact, people who then use that assumption to m
 
 One piece of advice for living in this world;
 
-Refrain from assuming the worst of others, gather evidence to support your idea first before treating it as fact. Do not assume that just because you have seen something similar in others before that it means this one has the same intentions as those before it, let it be known that I am not saying to disregard the past occurances. You are allowed to be wary, Infact, it is advised if they are showing similar patterns, just please, don't instantly assume that all humans are the same, for we are not.
+Refrain from using your assumptions as fact. Gather evidence to support your idea first before treating it as fact, and always question your suspicion.
+
+Hah. then again? what do I know?
+
+Anyway, I hope your day is well.
 
 > Thank you for reading, I appreciate it
